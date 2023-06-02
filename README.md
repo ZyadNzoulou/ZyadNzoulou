@@ -1,4 +1,4 @@
-Hey my name is Zyad N'zoulou, a Moroccan who loves tech and space exploration.
+Hey my name is Zyad N'zoulou.
 
 
 
